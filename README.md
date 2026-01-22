@@ -1,2 +1,2 @@
 # ai-love-you
-feel-great-and-nice-two-c-u-cosmi
+feel-great-and-nice2c-u-cosmi
